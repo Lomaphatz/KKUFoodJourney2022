@@ -338,7 +338,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 *อ้างอิงข้อมูลและภาพจาก:* https://www.wongnai.com/restaurants/421063OD-dakota-cafe-co-working-space/menu/items/7368284
 > คาเฟ่สไตล์ใหม่ที่นั่งเพียบมีหลายโซน มีทั่งแบบที่นั่งเดี่ยว นั่งกับพื้น โต๊ะใหญ่ ปลั๊กเพียบ บรรยากาศสบายๆ มีความเขียวผ่อนคลายดี เงียบสงบ เปิดเพลงแนวบรรเลงเบาๆ
 > เวลาเปิด-ปิด : เปิดทุกวัน	07:30 - 23:00 
-> พิกัด: 123/1188-1189 หมู่ที่ 16 (ใกล้ยูพลาซ่าหลังม.ข) ขอนแก่น (ร้านหลังม.ข ฝั่งโนนม่วง หลังหอชาย ถนนหน้ายูพลาซ่า (ยูเซ็นเตอร์))
+> พิกัด: 123/1188-1189 หมู่ที่ 16 (ใกล้ยูพลาซ่าหลังมข.) ขอนแก่น (ร้านหลังม.ข ฝั่งโนนม่วง หลังหอชาย ถนนหน้ายูพลาซ่า (ยูเซ็นเตอร์))
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
